@@ -27,7 +27,15 @@ ${\textsf{\color{#4d4e4f}true to me  ﹏}}$
 <img width="99" height="56" alt="tumblr_387e7f8cf5e018b83c44b3d12021d153_22ca98c3_100" src="https://github.com/user-attachments/assets/d763bd1d-6f59-45dc-b62a-94758471b72e" />
 ![IMG-7318](https://github.com/user-attachments/assets/2e311c06-5d44-4a3a-bad6-d2a9a88b6559)
 <img width="800" height="62" alt="61387993" src="https://github.com/user-attachments/assets/660749b5-5991-44d7-9a35-f0b1bd842a0f" />
-![bipride](https://github.com/user-attachments/assets/d3e268cb-0281-4f0e-8ccd-ac0013a3e7fb) ![rotating-knife-gif](https://github.com/user-attachments/assets/9574e187-661c-42d0-841c-8df94687c398) ![sjRyuag](https://github.com/user-attachments/assets/0b28e60e-1989-4897-912b-f9cda7ca478c) ![f11q90w](https://github.com/user-attachments/assets/2c42e871-322c-4137-a69e-115f0db7f9a3) ![black](https://github.com/user-attachments/assets/ddaf7749-3c94-4789-b503-904389fddaf6) ![blackcats](https://github.com/user-attachments/assets/e16e97cc-4c60-492f-8a7d-7f955c218303)
+![bipride](https://github.com/user-attachments/assets/d3e268cb-0281-4f0e-8ccd-ac0013a3e7fb) ![rotating-knife-gif](https://github.com/user-attachments/assets/9574e187-661c-42d0-841c-8df94687c398) ![sjRyuag](https://github.com/user-attachments/assets/0b28e60e-1989-4897-912b-f9cda7ca478c) ![f11q90w](https://github.com/user-attachments/assets/2c42e871-322c-4137-a69e-115f0db7f9a3) ![black](https://github.com/user-attachments/assets/ddaf7749-3c94-4789-b503-904389fddaf6) ![blackcats](https://github.com/user-attachments/assets/e16e97cc-4c60-492f-8a7d-7f955c218303) ![lrj8b1](https://github.com/user-attachments/assets/adf0bf8f-ff90-416f-b842-ae1735deb4fc) ![1m1sot](https://github.com/user-attachments/assets/5e205078-187f-471a-8e98-2b4db54d2dc1) ![tumblr_b189d5a32d323867f8e672aa20596f85_64538ae2_75](https://github.com/user-attachments/assets/e9ef9ecf-caf5-4dcf-9672-4d5892017537) ![v8q9et](https://github.com/user-attachments/assets/eac114e7-c9e9-482e-bb3c-36dfa3cf95a7) 
+<img width="1280" height="1280" alt="336 sin título_20260122133319" src="https://github.com/user-attachments/assets/b495a937-4235-416a-b98b-90420db716e6" />
+<img width="2048" height="345" alt="c4nxxf" src="https://github.com/user-attachments/assets/b5df2902-1d1d-4bf7-827b-f45da8b6b219" />
+
+![78c72b872959cd8555b46832cbdee901 (2)](https://github.com/user-attachments/assets/a1ab24f7-2dfb-472f-86cd-4c4a0f708536)
+${\textsf{\color{#7a7a7a}bye!}}$ 
+
+
+
 
 
 
